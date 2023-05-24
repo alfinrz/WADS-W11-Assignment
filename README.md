@@ -8,4 +8,4 @@ Bernard Choa -
 
 Muhammad Alfin Rizqullah - 2502036842 
 
-Sandrian G. Wardana -
+Sandrian G. Wardana - 2502016411
