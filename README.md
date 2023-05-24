@@ -6,6 +6,6 @@ Bayu Hartho - 2502013731
 
 Bernard Choa -
 
-M. Alfin Rizqullah - 
+Muhammad Alfin Rizqullah - 2502036842 
 
 Sandrian G. Wardana -
